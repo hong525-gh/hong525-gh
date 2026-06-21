@@ -7,7 +7,6 @@
 本分健康，认真努力。做对事情，知错即止。
 
 - [我的博客](https://hong525-gh.github.io/hong525_blog/)
-- [我的2026](https://github.com/hong525-gh/Hong525)
 - [Twitter](https://x.com/hong525_x)
 - [Telegram 频道](https://t.me/ciceros_self_talk)
 
